@@ -1,1 +1,1 @@
-Summer Internship certificate provided by college of engineering chegannur
+Summer Internship program certificate provided by college of engineering chengannur
